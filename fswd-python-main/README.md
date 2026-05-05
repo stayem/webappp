@@ -8,13 +8,6 @@
 - 77209887107, Fatme Berjaoui
 - 77209886771, Sarah Tayem
 
-## Persönliche Ziele + Zielnote
-
-Sarah Tayem:
-
-Hawa Si Moussa:
-
-Fatme Berjaoui:
 
 
 ## Schritt 1: das Problem
